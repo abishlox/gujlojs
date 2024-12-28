@@ -1,6 +1,6 @@
-## <a href="https://bit.ly/goley901">BAHSEGEL GİRİŞ İÇİN TIKLA</a>
+## <a href="https://bit.ly/goley903">BAHSEGEL GİRİŞ İÇİN TIKLA</a>
 
-<a href="https://bit.ly/goley901"><img src="https://s13.gifyu.com/images/SPuTg.gif"></a>
+<a href="https://bit.ly/goley903"><img src="https://s13.gifyu.com/images/SPuTg.gif"></a>
 
 # Bahsegel - Bahsegel Giriş - Bahsegel Resmi Giriş Linki
 
